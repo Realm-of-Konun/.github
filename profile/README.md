@@ -10,4 +10,4 @@ Times active a week:
 
 Experience:
 ### End of form
-Put this in disscusions in Realm-of-Konun repository. Your application will be reviewed quickly.
+Put this in disscusions in Realm-of-Konun repository. Your application will be reviewed quickly. Please also consider wether you would like to join the art/programming/sound teams for ease of communication.
